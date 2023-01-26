@@ -5,11 +5,11 @@ I'm Karin, a screenwriter, copywriter, and frontend developer.
 I am always eager to find the best possible way to combine code engineering and creative thinking. 
 
 <br />
-I've worked in comedy for many years, and am very pasionate about a good laugh. Just like a good comic bit, in engineering there's a code you have to follow, but you have to pour in your special sauce to make it exceptionally good.
+I've worked in comedy for years, and am very passionate about a good laugh. Just like a briliant comic bit, in engineering there's a code you have to follow, but you have to use the right props to make it exceptionally good.
  <br />
   <br />
 
-I like to keep things fresh and exciting, , and am always up for an adventure.
+I like to keep things fresh and exciting, , and am always up for a creative adventure.
  <br />
  
  <br />
